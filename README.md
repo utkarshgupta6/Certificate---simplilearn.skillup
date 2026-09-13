@@ -1,5 +1,5 @@
 # Certificate---simplilearn.skillup
-Certificate:- https://simplilearn.com/skillup-free-online-courses
+simplilearn.skillup side link:- https://simplilearn.com/skillup-free-online-courses
 
 # My Certifications & Courses
 
